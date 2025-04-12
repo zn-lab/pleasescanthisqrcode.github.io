@@ -1,1 +1,0 @@
-# pleasescanthisqrcode.github.io
